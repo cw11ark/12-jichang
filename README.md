@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：专线中转、含小众节点及独享IP定制，需自家客户端的机场。**
 >
-> 👉 **[官网注册](https://i01.1ytaff01.cc/register?aff=UMIlKqmv)** · 建议从 VIP1套餐 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://i01.1ytaff01.cc/register?aff=H0YQmovD)** · 建议从 VIP1套餐 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -68,7 +68,7 @@
 
 ## 注册
 
-👉 **[前往一云梯注册页面](https://i01.1ytaff01.cc/register?aff=UMIlKqmv)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往一云梯注册页面](https://i01.1ytaff01.cc/register?aff=H0YQmovD)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
